@@ -1,0 +1,2 @@
+# Nurhadi
+Bukan tak mampu
